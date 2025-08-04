@@ -1,3 +1,3 @@
-# sk
+# sky
 ysy repoo
 sky blue
